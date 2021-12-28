@@ -1,0 +1,5 @@
+- 🔭 I’m currently working on nothing, since I'm a beginner.
+- 🌱 I’m currently learning my school syllabus.
+- 👯 I’m looking to collaborate on nothing for now.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: The word Train comes from a French verb which means to draw or drag.
